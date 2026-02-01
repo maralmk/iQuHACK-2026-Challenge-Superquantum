@@ -1,0 +1,1 @@
+# iQuHACK-2026-Challenge-Superquantum
